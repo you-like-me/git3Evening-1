@@ -2,9 +2,9 @@
 
 *сейчас курсив*
 
-1. абракадабр
+1. абракадабрfdgfdgdgdgdgfdgdfgdgd
 
-gjjgjgjggj
+gjjgjgjggjdfgdfgd
 
 измненения
 xbffgxf
@@ -15,3 +15,4 @@ dssgdgdd
 создал фишечку
 
 надо бы добавить в продакшн
+плохой джун сделал конфликт
