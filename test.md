@@ -2,10 +2,11 @@
 
 *сейчас курсив*
 
-1. абракадабр
+1. абракадабрfdgfdgdgdgdgfdgdfgdgd
 
-gjjgjgjggj
+gjjgjgjggjdfgdfgd
 
 измненения
 xbffgxf
 dssgdgdd 
+плохой джун сделал конфликт
